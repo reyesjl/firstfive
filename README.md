@@ -1,3 +1,3 @@
-![first five logo](https://i.imgur.com/Q1PiS6B.png)
+# FRST FIVE
 
-The only online rugby platform and apparel brand in North America. 
+Largest Rugby centric platform and apparel brand in North America.
