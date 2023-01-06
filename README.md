@@ -1,3 +1,2 @@
-# FIRST FIVE
-
-Largest Rugby centric platform and apparel brand in North America.
+# First Five
+The largest rugby platform and apparel in North America.
